@@ -1,11 +1,14 @@
-# **Slipknot>>>**
+# **Slipknot**
 
--Slipknot
-World known band!!!
+
+**What is Slipknot?**
+
+Slipknot, one of the worlds renowned bands of the Genres Death Metal, Heavy Metal, and Groove Metal
+
 Genre Defining Music
-Known for attention-grabbing image, aggressive music style and energetic and chaotic live shows.
-The best of the best
-SLIPKNOT
+
+Known for their attention-grabbing image, aggressive music style and their energetic (but **DARK**) and chaotic live shows :fire:
+
 
 ![alt text](https://i.scdn.co/image/ab6761610000e5ebec01c52d6030a1574070e308)
 
