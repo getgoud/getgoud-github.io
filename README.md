@@ -6,10 +6,8 @@ Genre Defining Music
 Known for attention-grabbing image, aggressive music style and energetic and chaotic live shows.
 The best of the best
 SLIPKNOT
-| Syntax | Slipknot, a band known worldwide for its attention catching images, absolutely terrifying music and their even more so scary masks! |
-| ----------- | ----------- |
-| Header | Slipknot |
-| Paragraph | Text |
+[Yen](https://open.spotify.com/track/5oqRh7TIbAAvh33EQDJt06?si=ded9f033817240c9)
+[Psychosocial](https://open.spotify.com/track/3RAFcUBrCNaboRXoP3S5t1?si=0390dcf583084081)
 
 
 
