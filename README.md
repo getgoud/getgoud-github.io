@@ -3,7 +3,7 @@
 
 **What is Slipknot?**
 
-Slipknot, one of the worlds renowned bands of the Genres Death Metal, Heavy Metal, and Groove Metal
+Slipknot, one of the worlds most renowned bands of the Genres Death Metal, Heavy Metal, and Groove Metal
 
 Genre Defining Music
 
