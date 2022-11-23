@@ -3,16 +3,16 @@
 
 **What is Slipknot?**
 
-Slipknot, one of the worlds most renowned bands of the Genres Death Metal, Heavy Metal, and Groove Metal
+Slipknot, one of the worlds most renowned bands of the Genres Death Metal, Heavy Metal, Nu Metal and Groove Metal
 
 Genre Defining Music
 
-Known for their attention-grabbing image, aggressive music style and their energetic (but **DARK**) and chaotic live shows :fire:
+Known for their attention-grabbing image, aggressive music style and their energetic (but **DARK**) and chaotic live shows 🔥
 
 
 ![alt text](https://i.scdn.co/image/ab6761610000e5ebec01c52d6030a1574070e308)
 
-| Music | Link |
+| Best Songs (Popularity) | Link |
 | ----------- | ----------- |
 | Top #1 | [Duality](https://open.spotify.com/track/61mWefnWQOLf90gepjOCb3?si=5fa477cb8d3b408b) |
 | Top #2 | [Psychosocial](https://open.spotify.com/track/3RAFcUBrCNaboRXoP3S5t1?si=0390dcf583084081) |
