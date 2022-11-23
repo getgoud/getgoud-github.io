@@ -1,4 +1,6 @@
-# **Slipknot**
+# ![pngegg](https://user-images.githubusercontent.com/118424565/203474449-7d1fa8e2-5fee-404a-880d-2c103802254a.png)
+
+**Slipknot**
 
 
 **What is Slipknot?**
