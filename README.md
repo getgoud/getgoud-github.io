@@ -11,6 +11,10 @@ Genre Defining Music
 
 Known for their attention-grabbing image, aggressive music style and their energetic (but **DARK**) and chaotic live shows 🔥
 
+**Who is Slipknot?**
+
+Slipknot started in 1995 by vocalist and percussionist Anders Colsefini, guitarists Donnie Steele and Josh "Gnar" Brainard, bassist Paul Gray, drummer Joey Jordison,and percussionist Shawn Crahan. Through the years they have gone through numerous changes in their lineup.
+
 
 ![alt text](https://i.scdn.co/image/ab6761610000e5ebec01c52d6030a1574070e308)
 
